@@ -1,0 +1,1 @@
+# Starcraft-2-Full-Version-Unlocked
